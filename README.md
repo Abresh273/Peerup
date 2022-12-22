@@ -1,1 +1,1 @@
-### PEERUP Projec
+### PEERUP Project
